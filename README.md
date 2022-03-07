@@ -1,0 +1,2 @@
+# Anti-MACRO
+ANTİ MACRO - NO API
